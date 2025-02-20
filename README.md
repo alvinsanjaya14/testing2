@@ -1,1 +1,0 @@
-halo perkenalakan nama saya alvin, saya berumur 19, dan saya ingin menjadi progammer git
